@@ -1,3 +1,3 @@
 # WINDOWS ACTIVATOR
 ### This is a free windows activation and will solve many annoying issues like for example:
-![Extension image]([https://media.discordapp.net/attachments/1086583310551101490/1091365717108080751/image.png](https://cdn.discordapp.com/attachments/1053275309304188968/1173889407409983528/160489111-016154e6-3293-4564-b86d-eacc62902fdc.png?ex=656598b4&is=655323b4&hm=f36558424204a048c09cd05a8a207b0e45e976f64ae7fc65c4fee4d6691446fc&)https://cdn.discordapp.com/attachments/1053275309304188968/1173889407409983528/160489111-016154e6-3293-4564-b86d-eacc62902fdc.png?ex=656598b4&is=655323b4&hm=f36558424204a048c09cd05a8a207b0e45e976f64ae7fc65c4fee4d6691446fc&)
+![image](https://imagetolink.com/ib/tsdtZWnHBT)
